@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **farhankhan842612@gmail.com**
 
-- ⚡ Fun fact **How can we trust atoms if they make up everything?**
+- ⚡ Fun fact:**How can we trust atoms if they make up everything?**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
